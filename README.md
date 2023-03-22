@@ -1,3 +1,1 @@
-# Stuffs
-Stuffs
-some random shit i saved on my computer gets uploaded here.  usually for a good reason like a discontinued GTA mod that can't be downloaded anymore.
+Discontinued GTA mods and/or modding tools that can't be downloaded anymore may get mirrored here.
